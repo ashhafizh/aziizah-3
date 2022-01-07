@@ -1,1 +1,4 @@
-# aziizah
+Jum'at 07 Januari 2022, 23:38
+mo cerita aja si, tadi pagi kan kamu miskol berkali-kali, _aq tau klo kamu yg nelpon (masih ada kontak bheu)_, itu aslinya aq awalnya lagi dikamar mandi, trus ada yg pas lagi di cas dikamar teteh, trus ada yg pas ngeleg hpnya, pgn tak jawab tpi malah ngeleg, dan akhirnya kejawab juga, dan fyi aja tapi gapenting sih :v, pas itu kan aq telponan sm kmu diluar rumah trus tb" bapak dateng wkwkwk langsung lah aq agak jalan cepet ke kamar, dan bapak aq ambil helm. dan itu tuh aslinya mau berangkat buat tes rapid antigen :v, jadi bapak kyknya tau klo aq lagi nelpon, dan bapak aq nungguin aq keluar buat berangkat. padahal mah bukan siap" berangkat, tpi malah telponan sma kmu wkwk. Jadi, maap yah tadi pagi kayak keburu gtu nelponnya. Ya gtu lah mo gmn lagi. Sekian dari saya. Sehat sehat disana, zah.
+Trims,
+23:49
